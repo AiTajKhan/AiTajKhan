@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @AiTajKhan, or you can just call me Ainoon!
+- 👀 I’m interested in traveling, trying out new restaurants, and painting!
